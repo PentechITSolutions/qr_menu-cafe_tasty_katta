@@ -1,1 +1,0 @@
-# qr_menu-cafe_tasty_katta
